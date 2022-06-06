@@ -1,3 +1,3 @@
 # resume_
 
-the resume is last updated on 2-09-2021
+the resume is last updated on 6-06-2022
